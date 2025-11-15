@@ -1,1 +1,0 @@
-# thermador-range-repair-nyc
